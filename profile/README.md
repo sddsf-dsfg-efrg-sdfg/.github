@@ -1,3 +1,5 @@
+# İskoçya-Almanya maçı ne zaman, saat kaçta ve hangi kanalda? (Şampiyonası 2024)
+
 Maç 1 Almanya - İskoçya Avrupa Futbol Şampiyonası 2024 Maç Biletleri
 
 [➤ ►🌍📺📱👉 Almanya - İskoçya Maçı Canlı Izle](https://cutt.ly/AeporTUP)
